@@ -27,3 +27,4 @@ Ready to roll up your sleeves? Dive into the latest posts at The Brown Chair Blo
 Your home and garden deserve to shine. Let’s make it happen. 🌿✨
 
 Visit [The Brown Chair](https://thebrownchair.com/) for gardening guides, DIY tutorials, and more!
+<a href="https://thebrownchair.com/">The Brown Chair</a>
